@@ -1,1 +1,0 @@
-# leningkoei.github.io
